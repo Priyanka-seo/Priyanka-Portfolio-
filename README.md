@@ -19,3 +19,6 @@ SEO isn't just about stuffing keywords; it's about understanding Google's algori
 
 # 📈 Turning Strategies into conversion
 I focus on quality traffic and high-intent users, ensuring that visitors don’t just land on your page—they take action.
+
+
+![Uploading The Result.png…](https://github.com/Priyanka-seo/Priyanka-Portfolio-/blob/main/The%20Result.png)
