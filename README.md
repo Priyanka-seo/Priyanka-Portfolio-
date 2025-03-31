@@ -8,3 +8,8 @@ Results-driven Digital Marketing Executive with 1.6 years of experience in SEO, 
 ![Uploading About me.png…](https://github.com/Priyanka-seo/Priyanka-Portfolio-/blob/main/About%20me.png)
 
 
+# 🕵️‍♀️ Why Choose Me
+
+## I don’t just rank pages—I decode algorithms and turn insights into impact.
+SEO isn't just about stuffing keywords; it's about understanding Google's algorithm, user behavior, and ranking factors to create strategies that actually drive results.
+
