@@ -22,3 +22,8 @@ I focus on quality traffic and high-intent users, ensuring that visitors don’t
 
 
 ![Uploading The Result.png…](https://github.com/Priyanka-seo/Priyanka-Portfolio-/blob/main/The%20Result.png)
+
+
+# 🤝Open to Opportunities & Growth
+
+![Uploading The Result.png…](https://github.com/Priyanka-seo/Priyanka-Portfolio-/blob/main/Final%20end.png)
